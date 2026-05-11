@@ -1,4 +1,4 @@
-#  
+#  instant Scripts for run for brainrots offers the most advanced run for brainrots Script, with instant win and auto-collect. Perfect for dominating
 
 
 
